@@ -42,7 +42,7 @@ https://www.youtube.com/watch?v=FAsyiQHJ9OE
 
 ## Steps
 - Heat Oil
-- Add Onion
+- Add Onion, and heat in the oil (fry for a while)
 - Add Ginger garlic paste, tomatoes, chilli powder, conriander, tumeric and garam masala
 - Add chana and mix 
 - Add water above 1 1/2 inches and mix again
