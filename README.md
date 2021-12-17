@@ -28,3 +28,22 @@ https://www.youtube.com/watch?v=FAsyiQHJ9OE
 - There are more steps....
 
 
+# Chana masala
+
+## Ingriedients
+- Oil 2 table spoon 
+- Onion 1 chopped
+- Ginger garlic paste 1/2spoon 
+- 2 Chopped tomatos
+- Chilli powder 1/2 teaspoon
+- Coriander powder 1 teaspoon 
+- Turmeric powder 1/4 teaspoon 
+- Gharam masala 1/2 teaspoon 
+
+## Steps
+- Heat Oil
+- Add Onion
+- Add Ginger garlic paste, tomatoes, chilli powder, conriander, tumeric and garam masala
+- Add chana and mix 
+- Add water above 1 1/2 inches and mix again
+- Close the lid and cook for 15 minutes
