@@ -47,3 +47,30 @@ https://www.youtube.com/watch?v=FAsyiQHJ9OE
 - Add chana and mix 
 - Add water above 1 1/2 inches and mix again
 - Close the lid and cook for 15 minutes
+
+
+# Egg Fried Reice
+
+## Ingredients
+
+- For 1 portion of egg fried rice, 5 cloves of garlic (smash and chop)
+- chopped shallot (or onion)
+- 1 egg and 1 egg yolk
+- Spring onion
+- chillies
+- left over rice
+- Soy sauce
+- Asian seseme oil
+
+## Steps
+- Chop all the vegetables
+- Whisk the eggs
+- Coat the wok with oil
+- Heat the oil
+- put in the garlic and shallot
+- put in the egg
+- when its almost all solid, pour in the rice
+- add soy sauce
+- add sesame oil
+- add spring onion and chilli
+
